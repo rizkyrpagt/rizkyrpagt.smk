@@ -1,1 +1,1 @@
-# rizkyrpagt.smk
+# rizkyrpagtsmkk.github.io
